@@ -1,4 +1,4 @@
-## Lv2 - 
+## Lv2 - 新たな戦い
 
 ![2015-03-25 20 32 45](https://cloud.githubusercontent.com/assets/3695092/6823716/2694b386-d32e-11e4-8251-44030a36e7e0.png)
 
